@@ -8,7 +8,7 @@ Ella died six months after her father remarried, in a bizarre gardening accident
 
 Her father, being a wealthy though mad scientist (he made his fortune not through his mad scientistry but through shrewd land speculation), decided to save Ella. He conducted an experiment on Ella's body in an attempt to resurrect her. The experiment was partially successful - Ella did come back to life. Or, rather, half-life as she came back as a zombie. 
 
-Oh, and like you've never made a mistake?
+Oh, and like you *have* never made a mistake?
 
 Ella's first act on being reanimated was to eat her father. Sure, she felt bad and all - one doesn't simply eat your family members, after all. This led to a chilling in the relationship between Ella and her stepmother, and what seems the likely origins of the whole ["evil stepmother" thing](http://www.hollywoodreporter.com/news/casey-kasem-sad-strange-family-678902). 
 
